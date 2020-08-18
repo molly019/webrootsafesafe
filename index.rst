@@ -1,0 +1,1 @@
+Webroot antivirus software assures the user with the best defense for their computers. It protects the device from all kinds of viruses and also builds a firewall for network security. `webroot.com/safe <https://rootsafesafe.com>`__.  , `www.webroot.com/safe <https://rootsafesafe.com>`__. 
